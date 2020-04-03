@@ -1,1 +1,0 @@
-# anki.samaddar-gmail.com
